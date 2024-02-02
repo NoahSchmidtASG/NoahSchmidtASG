@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NoahSchmidtASG
+- 👀 I’m interested in web technologies.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Fun is fun.
